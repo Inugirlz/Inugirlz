@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Inugirlz
+- 👀 I’m interested in anime and Japanese culture
